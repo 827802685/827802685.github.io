@@ -4,4 +4,5 @@ https://hellowindows.cn/
 https://massgrave.dev/genuine-installation-media
 Microsoft 激活脚本 （MAS）
 https://massgrave.dev/
-
+Windows 11 22H2 最新官方正式版 ISO 镜像下载
+https://www.lsapk.com/2061.html
